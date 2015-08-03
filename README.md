@@ -56,3 +56,4 @@ Referrer Spam Blacklist, feel free to contribute
 - videos-for-your-business.com
 - semaltmedia.com
 - 53700634.videos-for-your-business.com
+- traffic2money.com
